@@ -1,0 +1,1 @@
+# slovensky-raj-trip
